@@ -1,1 +1,0 @@
-# Sporting_video_sequential_analysis
